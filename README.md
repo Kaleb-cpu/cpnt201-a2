@@ -1,2 +1,2 @@
 # This is only for a test 
-The cheetah lives in three main social groups
+The cheetah (Acinonyx jubatus) is a large cat native to Africa and central Iran.
